@@ -1,1 +1,1 @@
-Canva Workshop from BCA Department from De Paul College
+Canva Workshop Certificate from BCA Department from De Paul College
